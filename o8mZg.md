@@ -1,0 +1,1 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年06月14日 16时19分50秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</h2><br><h3>湖南省工程机械租赁协会高机分会正式成立 规范行业发展。</h3><br><p>高管减持潮来袭 一周内23家公司董监高套现离场。<br><br> | 来源：http://putaifilm.com/<br></h2><br><h3>保险板块异动拉升 中国人寿涨超5%带动指数翻红。</h3><br><p>科创50指数单日大跌5% 双创指数周末集体跳水。<br><br> | 来源：https://eng.myfuter.cn/<br>
